@@ -3,7 +3,7 @@
 ## Its_me_DHAMU 
 
 <div align="center">
-  <img src=https://www.linkpicture.com/q/IMG-20210819-WA1189.jpg>
+  <img src=https://www.linkpicture.com/q/DHAMU.jpg>
 
 ## 📢 Guide
 Click WA logo to Join Support Group 👇
